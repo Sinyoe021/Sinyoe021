@@ -1,1 +1,1 @@
-sinyoe021.github.com
+sinyoe021.github.io
